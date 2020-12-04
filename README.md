@@ -3,4 +3,4 @@
 - 🎓 I’m currently working on: Discord BOT JS And Batch Script 
 - 💻 I’m currently learning: Web Design
 
-<img src=https://i.pinimg.com/originals/66/c2/1a/66c21a45b16d427acc8f3d8837cb4897.gif>
+<img src=https://phoneky.co.uk/thumbs/screensavers/down/misc/walkingman_58ity4bx.gif>
